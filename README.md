@@ -4,4 +4,17 @@
 C'est l'histoire d'une fourmi,
 son métier était marcahant ambulant,
 elle arriva dans une colonie voisine.
-Mais malheureusement celle ci était completement inondé
+
+Malheureusement elle ne trouva personne
+pour écouler sa marchandise, elle alla donc
+dans un café histoire de réfléchir à ce qu'elle allait faire...
+
+**Après 5 tasses de café**, elle ne tenait plus en place.
+
+-*si les clients ne viennent pas à moi, mes marchandises les trouveront*, pensa follement la fourmi.
+
+Soudain un proverbe lui est venu qui dit ceci : "Celui qui mange une noix de coco fait confiance à son anus. Mais aussi la chenille n'a pas besoin de lunette pour boire l'eau. 
+
+Mais très vite elle réalisa que ce ne sont pas ces réflexions qui l'aideront à vendre son matos. Il lui fallait un site web !
+
+et voila :satisfied:
